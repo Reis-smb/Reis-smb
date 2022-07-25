@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Reis-smb
+- 👀 I’m interested in learn through fun and cool stuff
+- 🌱 I’m currently learning C (pure and bitter)
+- 💞️ I’m looking to collaborate -  
+- 📫 How to reach me -
